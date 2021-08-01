@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Mechimp3000
+- 👀 I’m interested in learning to code
